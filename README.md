@@ -1,0 +1,1 @@
+# covid-cert-verify-9390000064132543-lang-ru-ck-12fd7ad5g387g5484jd178135a1u2egp
